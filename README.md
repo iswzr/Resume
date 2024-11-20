@@ -1,3 +1,4 @@
 # Resume
 ## Download the pdf file
-[Data Analyst Resume.pdf](https://github.com/user-attachments/files/17829969/Data.Analyst.Resume.pdf)
+### Download Here: [[Resume.Israr.pdf](https://github.com/user-attachments/files/17831400/Resume.Israr.pdf)]
+
